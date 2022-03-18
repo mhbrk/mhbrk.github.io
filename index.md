@@ -32,11 +32,11 @@
 - Share the truth:
 Spread information about russian aggression, terrorism, and crimes against humanity. This is not only a Ukrainian issue. This is a threat to the whole civilized world.
 Avoid fake news and rely on credible, fact-checked sources like:
- - The Kyiv Independent: https://lnkd.in/d4Ud7xMB
- - Ukrayinska Pravda: https://lnkd.in/d7HGZZ4R
- - Euromaidan Press: https://lnkd.in/dGGwz-yb
- - SPRAVDI: https://spravdi.gov.ua/en/
- - Ukraineworld: https://ukraineworld.org/
+  - The Kyiv Independent: https://lnkd.in/d4Ud7xMB
+  - Ukrayinska Pravda: https://lnkd.in/d7HGZZ4R
+  - Euromaidan Press: https://lnkd.in/dGGwz-yb
+  - SPRAVDI: https://spravdi.gov.ua/en/
+  - Ukraineworld: https://ukraineworld.org/
 - Invest in Ukrainian businesses & hire Ukrainian specialists
 Ukraine is a country of great entrepreneurs and businesses. The economic front is a high priority now. We do our best to defend ourselves and work as good, as possible, as always.
 - Send Humanitarian Aid
