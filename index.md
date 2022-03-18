@@ -29,6 +29,12 @@
 
 ---
 
+Want to support the people of Ukraine?
+Here are meaningful ways you can help, except donating.
+The aid is needed and highly appreciated by Ukrainians. 
+Your support can save lives, literally.
+How to help 👇
+
 - Share the truth:
 Spread information about russian aggression, terrorism, and crimes against humanity. This is not only a Ukrainian issue. This is a threat to the whole civilized world.
 Avoid fake news and rely on credible, fact-checked sources like:
