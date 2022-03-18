@@ -18,6 +18,7 @@
 ## IT Army
 
 - https://t.me/itarmyofukraine2022
+- https://www.facebook.com/i.army.org/
 - ...
 
 ## Useful information
@@ -27,7 +28,8 @@
 - ...
 
 ---
-📌Share the truth:
+
+- Share the truth:
 Spread information about russian aggression, terrorism, and crimes against humanity. This is not only a Ukrainian issue. This is a threat to the whole civilized world.
 Avoid fake news and rely on credible, fact-checked sources like:
 The Kyiv Independent: https://lnkd.in/d4Ud7xMB
@@ -35,16 +37,17 @@ Ukrayinska Pravda: https://lnkd.in/d7HGZZ4R
 Euromaidan Press: https://lnkd.in/dGGwz-yb
 SPRAVDI: https://spravdi.gov.ua/en/
 Ukraineworld: https://ukraineworld.org/
-📌Invest in Ukrainian businesses & hire Ukrainian specialists
+- Invest in Ukrainian businesses & hire Ukrainian specialists
 Ukraine is a country of great entrepreneurs and businesses. The economic front is a high priority now. We do our best to defend ourselves and work as good, as possible, as always.
-📌Send Humanitarian Aid
+- Send Humanitarian Aid
 You may help by donating goods that are on the actual needs of the Ukrainian Armed Forces, medical workers, and internal refugees. Lists of needed items you can find here: https://lnkd.in/eEciP-DK
-📌Host Ukrainians
+- Host Ukrainians
 According to The United Nations report, about 3 million Ukrainians were forced to leave their homes. You can help by offering houses to the people fleeing russian aggression. Information on how to become a host check here: https://bit.ly/34OWCDK
-📌Ban russia
+- Ban russia
 Businesses, products, companies, celebrities of Russia remain silent or support the aggression of their regime. Cooperation with them is cooperation with a murderer. Do not contribute to terrorism.
-📌Stand with Ukraine
+- Stand with Ukraine
 Let your friends know you are in solidarity with the people of Ukraine and demand actions to save Ukraine.
+
 ---
 
 
