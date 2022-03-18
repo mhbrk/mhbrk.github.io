@@ -10,10 +10,17 @@
 ### Media
 * https://t.me/UkraineNow
 * https://t.me/babel
-* 
+* https://t.me/suspilnenews | viber: ...
+* ...
 
 
 ## IT Army
+* https://t.me/itarmyofukraine2022
+* ...
+
+## Useful information
+* https://t.me/ready4all_ua
+* @Hotovyi_do_vsioho_bot - У цьому інформаційному боті ви знайдете відповіді на найпоширеніші запитання щодо підготовки до надзвичаних ситуацій, а також поради щодо дій в небезпечних ситуаціях.
 * ...
 
 
