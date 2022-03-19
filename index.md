@@ -33,6 +33,37 @@
 
 ---
 
+## РОБОТА шукає людину 
+
+💙💛Працевлаштування для українців, які вимушено залишили свої домівки і перемістилися до інших міст України чи за кордон: https://www.uatalents.com/
+💙💛Вакансії віддалено або в європейських містах: https://happymonday.ua/ 
+💙💛  Наша улюблена платформа для пошуку роботи для дизайнерів https://awesomic.crew.work/jobs 
+Робота для українців за кордоном: https://helpukrainians.jooble.org/
+💙💛Віддалені вакансії по всій Україні: https://ua.jooble.org 
+💙💛Фріланс-вакансіЇ: https://www.upwork.com/
+💙💛Ще трохи фрілансу: https://www.fiverr.com/
+💙💛Вакансії для IT, Design та не тільки: https://www.welcometothejungle.com/en
+💙💛Вакансії в Європі: https://indeed.com/ 
+💙💛Понад 2500 віддалених вакансії: https://jobs.dou.ua/vacancies/?remote
+💙💛Вакансії для українців в європейських компаніях та допомога з візами в Сполученому Королівстві: https://remoteukraine.org/
+💙💛Можна створити власний профіль, й європейський роботодавець сам знайде вас: https://hireforukraine.org/
+💙💛Вакансії в Естонії, Німеччині та Чехії: https://www.jobs4ukraine.eu/
+💙💛Створення власного профілю: https://imagine-ukraine.org/
+💙💛Можна вказати свій нік в телеграмі й послуги, які ви можете надавати: https://t.me/workadojobs/1241
+💙💛Вакансії в галузі IT та креативних індустрій: https://t.me/casesjobs
+💙💛Прогресивні вакансії в Україні: https://t.me/lobbyx
+💙💛Креативні вакансії в Україні: https://t.me/cresume
+💙💛62 кращих сайти з віддаленими вакансіями: https://cutt.ly/pA3sAaG
+Також можна подивитись наші вакансії, усі віддалено:
+💙💛Senior C/C++ Developer: https://vpteam.io/vacancy/senior-cc-developer
+💙💛Full Stack Software Engineer: https://vpteam.io/.../senior-full-stack-software-engineer...
+💙💛React Native Engineer: https://vpteam.io/vacancy/react-native-engineer
+💙💛Ruby on Rails Senior Backend Engineer: https://vpteam.io/vacancy/ruby-rails-senior-backend-engineer
+💙💛QA: https://vpteam.io/vacancy/qa
+💙💛Account Manager (Senior / Lead): https://vpteam.io/vacancy/account-manager-senior-lead
+
+---
+
 Want to support the people of Ukraine?
 Here are meaningful ways you can help, except donating.
 The aid is needed and highly appreciated by Ukrainians. 
