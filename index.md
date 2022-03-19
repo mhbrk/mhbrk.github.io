@@ -33,12 +33,15 @@
 
 ---
 
-## РОБОТА шукає людину 
+### РОБОТА шукає людину 
 
+source: https://www.facebook.com/kolomodjo/posts/10159733641862383
+
+- РОБОТА шукає людину 
 💙💛Працевлаштування для українців, які вимушено залишили свої домівки і перемістилися до інших міст України чи за кордон: https://www.uatalents.com/
 💙💛Вакансії віддалено або в європейських містах: https://happymonday.ua/ 
 💙💛  Наша улюблена платформа для пошуку роботи для дизайнерів https://awesomic.crew.work/jobs 
-Робота для українців за кордоном: https://helpukrainians.jooble.org/
+- Робота для українців за кордоном: https://helpukrainians.jooble.org/
 💙💛Віддалені вакансії по всій Україні: https://ua.jooble.org 
 💙💛Фріланс-вакансіЇ: https://www.upwork.com/
 💙💛Ще трохи фрілансу: https://www.fiverr.com/
@@ -54,7 +57,7 @@
 💙💛Прогресивні вакансії в Україні: https://t.me/lobbyx
 💙💛Креативні вакансії в Україні: https://t.me/cresume
 💙💛62 кращих сайти з віддаленими вакансіями: https://cutt.ly/pA3sAaG
-Також можна подивитись наші вакансії, усі віддалено:
+- Також можна подивитись наші вакансії, усі віддалено:
 💙💛Senior C/C++ Developer: https://vpteam.io/vacancy/senior-cc-developer
 💙💛Full Stack Software Engineer: https://vpteam.io/.../senior-full-stack-software-engineer...
 💙💛React Native Engineer: https://vpteam.io/vacancy/react-native-engineer
