@@ -31,6 +31,11 @@
 - @Hotovyi_do_vsioho_bot - У цьому інформаційному боті ви знайдете відповіді на найпоширеніші запитання щодо підготовки до надзвичаних ситуацій, а також поради щодо дій в небезпечних ситуаціях.
 - ...
 
+## Direct Help
+
+Gogol Bordello 
+Gives people an opportunity to find the most direct and meaningful way to help. You can buy and donate specific things, which are desperately needed by Ukraine’s defenders, or you can donate money, and we will buy the equipment. You can also leverage the site to find resources needed by those who have fled or are trying to flee the onslaught. The companies that ship it have an arrangement with the Ukrainian ministry of defense so they get all the support they need. https://www.directhelpforukraine.info/ So it ships from warehouses here to Poland, then trucked to L'viv.
+
 ---
 
 ### РОБОТА шукає людину 
